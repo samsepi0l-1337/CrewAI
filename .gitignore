@@ -2,4 +2,5 @@
 venv
 .vscode/
 *.pkl
+db/
 .DS_Store
