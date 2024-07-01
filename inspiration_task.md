@@ -1,0 +1,149 @@
+Here are examples of videos and articles that have a similar angle to "Gen Z Takes on Hot Sauce Challenges: Can You Handle the Heat?" but from different industries:
+
+1. **100 Popular YouTube Challenges (And Ideas) to Help You Go Viral [2024]** - Scalefluence
+   - **Food Challenges**:
+     - Ghost Pepper Challenge
+     - Guess-the-Flavor Challenge
+     - Pizza Challenge
+     - Gummy Food vs. Real Food
+     - Chubby Bunny
+     - Cinnamon Challenge
+     - Eat it or Wear it
+     - Exploding Watermelon
+     - McDonald’s Roulette Challenge
+     - Pancake Art Challenge
+     - Sour vs. Sweet
+     - SQUID GAME Honeycomb Candy Challenge
+     - Spicy vs. Extreme Spicy Food Challenge
+     - Don’t Wipe your Mouth challenge
+     - Candy Challenge
+     - Mystery Drink Challenge
+     - Healthy vs. Junk Food Challenge
+     - Only Using One Color To Cook Challenge
+     - What’s in My Mouth?
+     - Let The Person in Front of you Decide What to Eat
+     - Smoothie Challenge
+     - Bean Boozled Challenge
+     - Ice Cream Taste Test
+     - Tin Can Challenge
+     - Baby Food Challenge
+     - Hungry Hippo Challenge
+     - Brand Name vs. Generic Brand
+     - Whipped Cream Challenge
+     - Haribo Sugarless Gummy Bear Challenge
+   - **Family-Fun Challenges**:
+     - Who Wore it Better
+     - Coin Flip Challenge – Crazy Dares Challenge
+     - Making my Friend Ugly
+     - Mute Challenge
+     - Doing Each Other’s Makeup
+     - Mom vs. Dad Outfit Challenge
+     - Last to Use WIFI Challenge
+     - Say No to Everything People Ask you in 24 Hours
+     - 24 Hours Handcuffed to your Sibling
+     - Drive-Thru Swap Challenge
+     - Truth or Dare Challenge
+     - Who Knows Me Better? My Partner vs. Best Friend
+     - Two Truths, One Lie
+     - Blindfolded Drawing Challenge
+     - Hard Yoga Position Challenge
+     - Extreme Couple vs. Couple Challenge
+     - Copying What The Other Does For 24 Hours
+   - **Solo Challenges**:
+     - Good Thing Challenge
+     - Drive-Through Trick-Or-Treat Challenge
+     - 100 Layers Challenge
+     - Speed Dance Challenge
+     - Don’t Look Away Challenge
+     - Guess the Movie/Videogame from a Song
+     - 30 Drawings for 30 Days
+     - Going to a Place Dressed as Celebrities Challenge
+     - Recreate Famous Influencers’ Instagram Pictures
+     - Thrift Flip Challenge
+     - Let Strangers Buy Your Outfit
+     - Try not to Get Uncomfortable Challenge
+     - Try to Not Get Scared Challenge
+     - 5-minute DIY challenge
+     - Sing Anything Challenge
+     - Do a Tough Challenge in a Videogame
+     - Going to The Worst Rated Place
+     - Dollar Store DIY Challenge
+     - Speaking in a Different Language for an Entire Day
+   - **Funny Challenges**:
+     - Try Not to Laugh
+     - Best Friend Challenge
+     - Truth or Drink
+     - Never Have I Ever
+     - Innuendo Bingo
+     - YES to Everything Your Bestfriend Says for 24 Hours
+     - Not My Arms Challenge
+     - Extreme Waxing Challenge
+     - Yoga Challenge
+     - Whisper Challenge
+     - Bottle Flip
+     - Speed Drawing
+     - The Floor is Lava Challenge
+     - No Mirror Makeup Challenge
+     - No Thumbs Challenge
+     - Things Only 1% of People Can Do
+     - Dad Jokes – Try Not to Laugh Challenge
+     - Try Not to Sing-Along
+     - Try Not To Dance Challenge
+     - Try Not To Get Mad Challenge
+     - Try To Keep Singing Challenge
+     - Try to Keep Dancing Challenge
+     - Say it Backwards Challenge
+     - 7 Seconds Challenge
+     - Roast Yourself Challenge
+     - Say Anything
+   - **Challenges for Kids**:
+     - Disney Challenge
+     - Try Not To Make a Sound Challenge
+     - Try Not To Say WOW
+     - The No-Look Challenge
+     - The Lunchbox Switch Up Challenge
+     - Last to Stand Up Challenge
+     - Last to Leave the Room Wins
+     - Last to Leave Circle Wins
+     - What’s in The Box Challenge
+
+2. **27 Popular YouTube Challenges to Inspire Your Content | Hype Blog**
+   - **Daredevil Challenges**:
+     - One Chip Challenge
+   - **Reaction Challenges**:
+     - Try Not to Get Scared Challenge
+     - Try Not to Laugh Challenge
+   - **24-Hour Challenges**:
+     - Perform an activity for 24 hours straight
+   - **Color Challenge**:
+     - Eat just one color of food for 24 hours
+   - **Timed Challenges**:
+     - 7-Second Challenge
+     - 10-Second Challenge
+   - **Food Challenges**:
+     - Chubby Bunny Challenge
+     - The Bean Boozled Challenge
+   - **Fitness Challenges**:
+     - Random Exercise Challenge
+     - Yoga Challenge
+   - **Balance Challenges**:
+     - Stick It Challenge
+   - **Classic Challenges**:
+     - Baby Food Challenge
+     - Accent Challenge
+     - Ghost Pepper Challenge
+     - Mystery Cotton Candy Challenge
+     - Cinnamon Challenge
+     - 100 Layers Challenge
+     - Spicy Noodle Challenge
+     - Blindfolded Makeup Challenge
+     - Blindfolded Drawing Challenge
+     - Pancake Art Challenge
+     - 10,000 Calorie Challenge
+     - No Hands Challenge
+     - Smoothie Challenge
+     - Touch My Body Challenge
+     - Whisper Challenge
+     - The Floor Is Lava Challenge
+
+These examples span various industries and contexts, showcasing the versatility and broad appeal of challenge-based content.
