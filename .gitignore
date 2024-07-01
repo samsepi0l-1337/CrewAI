@@ -1,7 +1,5 @@
 .env
 venv
 .vscode/
-healthy_recipe.md
-normal_recipe.md
 *.pkl
 .DS_Store
